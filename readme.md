@@ -1,0 +1,1 @@
+falta algunos arreglos por problema de mi maquina no lo pude seguir 
